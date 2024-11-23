@@ -14,3 +14,5 @@ https://helpcrunch.com/blog/black-friday-cyber-monday-software-deals/#SEO_tools 
 https://cybernews.com/black-friday-cyber-monday-deals/ hostinger deal
 
 https://zylvie.com/deals/p/BFCM2023
+
+coauthor -> building blocks of content
